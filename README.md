@@ -1,4 +1,4 @@
-![natterstefan](https://github.com/JustForeFun/JustForeFun/blob/main/gamelife.webp)
+![natterstefan](https://github.com/JustForeFun/JustForeFun/blob/main/GameLife_Logo.webp)
 
               
 
